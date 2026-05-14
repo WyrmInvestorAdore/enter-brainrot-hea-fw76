@@ -1,4 +1,4 @@
-#  
+#  enter brainrot heads Script advanced is the best enter brainrot heads Script, featuring no cooldown and fly. Safe and powerful for all your needs.
 
 
 
